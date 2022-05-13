@@ -1,1 +1,0 @@
-# nemerson7.github.io
